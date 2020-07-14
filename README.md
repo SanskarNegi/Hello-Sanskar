@@ -1,3 +1,3 @@
 # Hello-Sanskar
  for learning
-I am here for learning and evolve my skills
+I am here for evolving my skills
